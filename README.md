@@ -1,1 +1,1 @@
-# Dolgozat1
+# Nagy Domonkos Kristóf
